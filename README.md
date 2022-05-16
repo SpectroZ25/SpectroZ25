@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SpectroZ25
 - 🐒
 - me segue no instagran bebẽ......@adriel_cherbiski
-- 🇦🇴soy angolano;-;
+- 🇦🇴soy angolanu;-;
 
 ![SCRATCH](https://img.shields.io/badge/Scratch-4D97FF?style=for-the-badge&logo=Scratch&logoColor=white)
 <!---
