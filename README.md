@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SpectroZ25
-- 👽
+- 👽 Gamer
 - me segue no instagran bebẽ......@adriel_cherbiski
 - 🇦🇴soy angolanu;-;
 - 💀 brawl stars 24k 
